@@ -1,0 +1,1 @@
+See https://bitbucket.org/nguyenthanhvuh/coloring/wiki/Home
